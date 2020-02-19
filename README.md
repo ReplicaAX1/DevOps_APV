@@ -2,7 +2,7 @@ Meus filmes favoritos:
 
 O Senhor dos Anéis: O Retorno do Rei
 
-Forrest Gump: o contador de histórias
+Forrest Gump: O contador de histórias
 
 A Viagem de Chihiro
 
