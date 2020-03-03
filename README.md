@@ -1,4 +1,4 @@
-Meus filmes favoritos:
+Filmes favoritos:
 
 O Senhor dos Anéis: O Retorno do Rei
 
