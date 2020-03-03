@@ -1,4 +1,4 @@
-Filmes favoritos:
+Filmes que mais gosot:
 
 O Senhor dos Anéis: O Retorno do Rei
 
